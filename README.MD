@@ -37,6 +37,12 @@
 ##### 2019年3月，范冰冰美容院开业，李晨现身剪彩；
 ##### 2019年6月27日，范冰冰李晨发文宣布分手。GG-END
 
+![image](https://github.com/yttsam/we_are_us/blob/master/2015.png)
+![image](https://github.com/yttsam/we_are_us/blob/master/2016.png)
+![image](https://github.com/yttsam/we_are_us/blob/master/2017.png)
+![image](https://github.com/yttsam/we_are_us/blob/master/2018.png)
+![image](https://github.com/yttsam/we_are_us/blob/master/2019.png)
+
 
 
 
